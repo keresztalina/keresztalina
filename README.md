@@ -1,1 +1,1 @@
-Alina Kereszt - Cognitive Science BSc, Aarhus Universitet
+Alina Kereszt - Cognitive Science MSc, Aarhus Universitet
